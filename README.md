@@ -5,7 +5,7 @@
 - im a teenager , 
 - ⚡ Fandoms - dc , etm , Alexander Hamilton, etc 
 - im a very stupid person .
-- im a annoying
+- literally nobody 
 - also a hazbin hotel / helluva boss fan
 - i love to draw, paint whatever that was i forgot 
 <!---
