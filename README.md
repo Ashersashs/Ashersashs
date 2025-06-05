@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ashersashs
-- whatever pronouns 🥀
-- yay, uh.. 🤓 , i love musicals 
-- i talk a lot so dont be friends w me
+- whatever pronouns 
+- yay , i love musicals 
+- Aroacee 
 - im a teenager , 
 - ⚡ Fandoms - dc , etm , Alexander Hamilton, etc 
 - im a very stupid person .
