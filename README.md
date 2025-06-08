@@ -6,7 +6,7 @@
 - ⚡ Fandoms - dc , etm , Alexander Hamilton, etc 
 - im a very stupid person .
 - literally nobody 
-- also a hazbin hotel / helluva boss fan
+- Narusaku , Sasusaku , ETC (I FORGOT) 
 - i love to draw, paint whatever that was i forgot 
 <!---
 Ashersashs/Ashersashs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
