@@ -5,7 +5,5 @@
    <p align="center">✦ ✦ ✦ ✦ ✦ ✦ ✦</p>
     
 <p align="center">
-  <img src="ICON1" width="40">
-  <img src="ICON2" width="40">
-  <img src="ICON3" width="40">
-</p>
+  <img src="Picsart_26-04-29_20-21-50-846.png" width="60"</p>
+  <img src="YOUR_ICON" width="60"</l>
