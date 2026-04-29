@@ -1,1 +1,6 @@
- ![yippe](597d6c0d59017eb4225b1c1eb26d6f9b.jpg)
+<p align="center">
+  <img src="48d245ccb8c6e7054f0dca65acc9d9ce.gif" width="100%">
+</p>
+
+   <p align="center">✦ ✦ ✦ ✦ ✦ ✦ ✦</p>
+    
