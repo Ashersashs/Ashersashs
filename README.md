@@ -1,11 +1,12 @@
 <p align="center">
-  <img src="48d245ccb8c6e7054f0dca65acc9d9ce.gif" width="100%">
+  <img src="5efbd05a6994142457f9b6def29f0f70.gif" width="100%">
 </p>
 
    <p align="center">ヽ(≧∀≦)ﾉ
-    
 <p align="center">
-  <img src="Picsart_26-04-29_20-33-05-663.png" width="90"</l>
+  <img src="Picsart_26-05-01_11-09-23-604.png" width="100" style="border-radius:100%;">
+  <img src="Picsart_26-05-01_11-07-35-433.png" width="100" style="border-radius:100%;">
+  
 
       ᶻ 𝘇 𐰁  . . . 
 
