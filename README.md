@@ -14,16 +14,8 @@
 
 
 
+## 🎵 Spotify
 
-
-
-
-
-
-
-
-
-
-
-    
-  
+<a href="https://open.spotify.com/playlist/43HNKkricCwDgmY0YIBHg0">
+  <img src="6a251641b1786e654b07d2ef7a39eb8c.jpg" width="400">
+</a>
