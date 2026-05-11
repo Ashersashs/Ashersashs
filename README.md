@@ -1,13 +1,29 @@
+
+
 <p align="center">
-  <img src="5efbd05a6994142457f9b6def29f0f70.gif" width="100%">
+  <img src="7165ee0ead61a18e2f6edba87788b016.gif" width="70000">
 </p>
 
-   <p align="center">ヽ(≧∀≦)ﾉ
+<br>
+
 <p align="center">
-  <img src="Picsart_26-05-01_11-09-23-604.png" width="100" style="border-radius:100%;">
-  <img src="Picsart_26-05-01_11-07-35-433.png" width="100" style="border-radius:100%;">
+  <img src="0b6b4e5964847286bc31862d61e6eb9c.jpg" width="300" style="border-radius:70%;">
+  <img src="81d7f5ea59c8a3ec22e8b80036a430b1.jpg" width="300" style="border-radius:60%;">
+  <img src="14e1f5c9db52143f812c0f8b87d2a9ac.jpg" width="300" style="border-radius:60%;">
   
 
-      ᶻ 𝘇 𐰁  . . . 
 
+
+
+
+
+
+
+
+
+
+
+
+
+    
   
