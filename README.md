@@ -1,8 +1,6 @@
 
 
-<p align="center">
-  <img src="7165ee0ead61a18e2f6edba87788b016.gif" width="70000">
-</p>
+
 
 <br>
 
